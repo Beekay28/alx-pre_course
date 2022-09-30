@@ -1,2 +1,2 @@
 thank you for everything
-our father
+our father amen
